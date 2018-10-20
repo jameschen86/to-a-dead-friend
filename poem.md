@@ -1,25 +1,21 @@
-#To A Dead Friend
+# To A Dead Friend
 
-##By Paul Laurence 
+## By Paul Laurence 
 
-It is as if a silver *chord*
-Were suddenly grown **mute**,
-And life's song with its rhythm *warred*
-Against a silver **lute**.
+It is as if a silver *chord* were suddenly grown **mute**,
 
-It is as if a silence *fell*
-Where bides the garnered **sheaf**,
-And voices murmuring, "It is *well*,"
-Are stifled by our **grief**.
+And life's song with its rhythm *warred* against a silver **lute**.
 
-It is as if the gloom of *night*
-Had hid a summer's **day**,
-And willows, sighing at their *plight*,
-Bent low beside the **way**.
+It is as if a silence *fell* where bides the garnered **sheaf**,
 
-For he was part of all the *best*
-That Nature loves and **gives**,
-And ever more on Memory's *breast*
-He lies and laughs and **lives**.
+and voices murmuring, "It is *well*," are stifled by our **grief**.
 
-http://www.public-domain-poetry.com/paul-laurence-dunbar/to-a-dead-friend-15031
+It is as if the gloom of *night* had hid a summer's **day**,
+
+And willows, sighing at their *plight*, bent low beside the **way**.
+
+For he was part of all the *best* that Nature loves and **gives**,
+
+And ever more on Memory's *breast* he lies and laughs and **lives**.
+
+[Public Doman Poetry](http://www.public-domain-poetry.com/paul-laurence-dunbar/to-a-dead-friend-15031)
